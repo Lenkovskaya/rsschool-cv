@@ -1,5 +1,5 @@
 # MARIYA LENKOVSKAYA 
-![..](/Users/maria/Downloads/IMG_6732 2.jpg ' ')
+![..](/Downloads/IMG_6732 2.jpg ' ')
 __________________________
 
 ## CONTACT ME
