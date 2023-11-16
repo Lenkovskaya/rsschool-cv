@@ -1,10 +1,11 @@
-# MARIYA LENKOVSKAYA
+# MARIYA LENKOVSKAYA 
+![..](/Users/maria/Downloads/IMG_6732 2.jpg ' ')
 __________________________
 
 ## CONTACT ME
-- 375(25)523-01-76
-- TG @Lenkovskayam
-- Belarus, Minsk
+- *375(25)523-01-76*
+- **TG** *@Lenkovskayam*
+- *Belarus, Minsk*
 
 ## ABOUT ME
 I,m 26 years old, i,m a restaurant administrator, i have to be responsible and strive for ideals
