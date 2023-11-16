@@ -1,6 +1,5 @@
 # MARIYA LENKOVSKAYA 
 
-![..](rsschool-cv/IMG_6732 2.jpg ' ')
 __________________________
 
 ## CONTACT ME
