@@ -1,2 +1,2 @@
 # rsschool-cv
-ffg
+https://Lenkovskaya.github.io/rsschool-cv/
